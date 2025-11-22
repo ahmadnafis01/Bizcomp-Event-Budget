@@ -1,6 +1,8 @@
 G Sheet Link: https://docs.google.com/spreadsheets/d/1oHrMRvTwX_pmyTZHULAG2AuvVGPhGoYTku2JGRlhNzs/edit?usp=sharing
 
 <img width="800" height="468" alt="image" src="https://github.com/user-attachments/assets/755fa483-5e93-4181-bff5-e3fb9d360379" />
+<img width="807" height="376" alt="image" src="https://github.com/user-attachments/assets/cf9a782a-6edc-4ebf-9512-e14a1c6b5a6c" />
+<img width="646" height="438" alt="image" src="https://github.com/user-attachments/assets/96d03e0b-aaa1-4255-ab12-eaddabf496e4" />
 
 ![image](https://github.com/user-attachments/assets/4fd69673-0243-4052-888a-af3a46988b39)
 ![image](https://github.com/user-attachments/assets/c2be3e30-94b3-441c-860c-74522088bc09)
