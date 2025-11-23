@@ -6,7 +6,7 @@ https://docs.google.com/spreadsheets/d/1oHrMRvTwX_pmyTZHULAG2AuvVGPhGoYTku2JGRlh
 <img width="646" height="438" alt="image" src="https://github.com/user-attachments/assets/96d03e0b-aaa1-4255-ab12-eaddabf496e4" />
  
 
-# 2. Budget for Nation's Largest HR-based Business Case Competition Event - 2024
+# 2. 15 Lakh Budget for Nation's Largest HR-based Business Case Competition Event - 2024
 
  
 ![image](https://github.com/user-attachments/assets/4fd69673-0243-4052-888a-af3a46988b39)
