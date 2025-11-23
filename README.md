@@ -1,4 +1,4 @@
-# 1. Event Budget of 4, 6, 8, 10 Lakhs 2025. G Sheet Link: 
+# 1. Event Budget of 4, 6, 8, 10 Lakhs - 2025. G Sheet Link: 
 https://docs.google.com/spreadsheets/d/1oHrMRvTwX_pmyTZHULAG2AuvVGPhGoYTku2JGRlhNzs/edit?usp=sharing
 
 <img width="800" height="468" alt="image" src="https://github.com/user-attachments/assets/755fa483-5e93-4181-bff5-e3fb9d360379" />
@@ -6,7 +6,7 @@ https://docs.google.com/spreadsheets/d/1oHrMRvTwX_pmyTZHULAG2AuvVGPhGoYTku2JGRlh
 <img width="646" height="438" alt="image" src="https://github.com/user-attachments/assets/96d03e0b-aaa1-4255-ab12-eaddabf496e4" />
  
 
-# 2. Budget for Nation's Largest HR-based Business Case Competition Event 2024
+# 2. Budget for Nation's Largest HR-based Business Case Competition Event - 2024
 
  
 ![image](https://github.com/user-attachments/assets/4fd69673-0243-4052-888a-af3a46988b39)
