@@ -1,5 +1,6 @@
 # 1. Event Budget of 4, 6, 8, 10 Lakhs - 2025. G Sheet Link: 
 https://docs.google.com/spreadsheets/d/1oHrMRvTwX_pmyTZHULAG2AuvVGPhGoYTku2JGRlhNzs/edit?usp=sharing
+(Budget approved by the NSU Finance & Accounts Office. Executed the event within the budget through continuous expense analysis and got funding of 25k+ Tk after the event ended.)
 
 <img width="800" height="468" alt="image" src="https://github.com/user-attachments/assets/755fa483-5e93-4181-bff5-e3fb9d360379" />
 <img width="807" height="376" alt="image" src="https://github.com/user-attachments/assets/cf9a782a-6edc-4ebf-9512-e14a1c6b5a6c" />
@@ -7,7 +8,7 @@ https://docs.google.com/spreadsheets/d/1oHrMRvTwX_pmyTZHULAG2AuvVGPhGoYTku2JGRlh
  
 
 # 2. 15 Lakh Budget for Nation's Largest HR-based Business Case Competition Event - 2024
-
+(The event successfully concluded within the budget by less than 12 lakh Tk.)
  
 ![image](https://github.com/user-attachments/assets/4fd69673-0243-4052-888a-af3a46988b39)
 ![image](https://github.com/user-attachments/assets/c2be3e30-94b3-441c-860c-74522088bc09)
