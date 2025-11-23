@@ -1,5 +1,5 @@
-# 1. Event Budget of 4, 6, 8, 10 Lakhs - 2025. G Sheet Link: 
-https://docs.google.com/spreadsheets/d/1oHrMRvTwX_pmyTZHULAG2AuvVGPhGoYTku2JGRlhNzs/edit?usp=sharing
+# 1. Event Budget of 4, 6, 8, 10 Lakhs - 2025.  
+G Sheet Link: https://docs.google.com/spreadsheets/d/1oHrMRvTwX_pmyTZHULAG2AuvVGPhGoYTku2JGRlhNzs/edit?usp=sharing
 
 (Budget approved by the NSU Finance & Accounts Office. Executed the event within the budget through continuous expense analysis and got funding of 25k+ Tk after the event ended.)
 
