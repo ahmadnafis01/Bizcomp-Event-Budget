@@ -9,7 +9,7 @@ G Sheet Link: https://docs.google.com/spreadsheets/d/1oHrMRvTwX_pmyTZHULAG2AuvVG
  
 
 # 2. 15 Lakh Budget for Nation's Largest HR-based Business Case Competition Event - 2024
-(The event successfully concluded within the budget by less than 12 lakh Tk.)
+(Approved by the NSU Finance & Accounts Office and the event successfully concluded within the budget by less than 12 lakh Tk.)
  
 ![image](https://github.com/user-attachments/assets/4fd69673-0243-4052-888a-af3a46988b39)
 ![image](https://github.com/user-attachments/assets/c2be3e30-94b3-441c-860c-74522088bc09)
